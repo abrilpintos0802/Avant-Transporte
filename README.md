@@ -1,1 +1,1 @@
-https://https://avantargentina.com.ar/
+avantargentina.com.ar
